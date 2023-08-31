@@ -1,0 +1,1 @@
+# stya_smkaw2.github.io
